@@ -1,2 +1,1 @@
-Amateur application developer
-
+olimpic programmer 😎
